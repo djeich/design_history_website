@@ -57,7 +57,7 @@ Each artifact in the collection will have a dedicated page with the following co
 - **Publisher:** Duell, Sloan and Pearce
 - **Publication Date:** 1943
 - **Format:** Hardcover with orange/terracotta cloth binding
-- **Signature:** Signed "To W.A. Schneider" and dated 1943
+- **Signature:** Signed "To W.A. Speerschneider" and dated 1943
 - **Distinctive Feature:** Red square on title page
 - **Condition:** [To be assessed]
 

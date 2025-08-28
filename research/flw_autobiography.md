@@ -6,7 +6,7 @@
 - **Publication Date:** 1943
 - **Format:** Hardcover with orange/terracotta cloth binding
 - **Distinctive Feature:** Red square on title page where Wright typically signed his name
-- **Signature:** Signed "To W.A. Schneider" and dated 1943
+- **Signature:** Signed "To W.A. Speerschneider" and dated 1943
 
 ## Publication History
 - Originally published in 1932
@@ -25,7 +25,7 @@
 - Signed copies of this edition have been valued between $1,000-$3,500 depending on condition
 - The red square signature is a distinctive feature of Wright's signed books
 - Wright's signature adds significant value to the book
-- The dedication to W.A. Schneider adds provenance and potentially additional value
+- The dedication to W.A. Speerschneider adds provenance and potentially additional value
 
 ## Physical Description
 - Orange/terracotta cloth binding
